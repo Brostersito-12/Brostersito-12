@@ -26,7 +26,7 @@
 
 🌐 Roles en el ámbito: estudiante... desarrollador... programador freelance... y en un futuro quién sabe 😄
 
-📩 Contacto: **panayfoadrian@gmail.com**
+📩 Contacto: **panayfoadrian783@gmail.com**
 
 📍 Pucallpa, Perú
 
